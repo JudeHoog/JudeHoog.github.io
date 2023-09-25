@@ -1,1 +1,0 @@
-I'm a programmer who's loves technology and the potential of AI and machine learning. I love building things with my hands, from robots to spaceships, and I'm always looking for the next big challenge to tackle. 
